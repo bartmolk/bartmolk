@@ -1,4 +1,4 @@
-- Ola Pendejos
+- Ola Amigo's
 - Github is Life
 - I'm Learning everything, knowing a little
 - Looking for E-G's and Z-Gen Masters
